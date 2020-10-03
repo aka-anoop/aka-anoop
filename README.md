@@ -1,4 +1,9 @@
-### Hi there 👋
+I'm an Animation/VFX Technologist working as **Pipeline Supervisor** at [Tau Films](https://taufilms.com). 
+
+I was previously associated with Academy Award winning studios like [Dreamworks Animation](https://dreamworks.com) and [Rhythm & Hues Studios](https://rhythm.com).
+
+I am also an avid XR and Real-time Filmmaking Enthusiast.
+
 
 <!--
 **aka-anoop/aka-anoop** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
