@@ -1,4 +1,4 @@
-I'm an Animation/VFX Technologist working as **Pipeline Supervisor** at [Tau Films](https://taufilms.com). 
+I'm an Animation/VFX Technologist working as **CIO** at [BOT VFX](https://botvfx.com). 
 
 I was previously associated with Academy Award winning studios like [Dreamworks Animation](https://dreamworks.com) and [Rhythm & Hues Studios](https://rhythm.com).
 
