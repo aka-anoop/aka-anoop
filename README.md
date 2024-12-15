@@ -2,7 +2,7 @@ I'm an Animation/VFX Technologist working as **CIO** at [BOT VFX](https://botvfx
 
 I was previously associated with Academy Award winning studios like [Dreamworks Animation](https://dreamworks.com) and [Rhythm & Hues Studios](https://rhythm.com).
 
-I am also an avid XR and Real-time Filmmaking Enthusiast.
+I am also an avid Spatial Computing / XR Enthusiast.
 
 
 <!--
